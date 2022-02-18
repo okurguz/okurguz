@@ -1,6 +1,4 @@
-***Hi guys! ✌***
-
-**My name is Olga!**
+***Hi guys! ✌ My name is Olga!***
 
 ✔completed the course of Vadim Ksendzov.
 
