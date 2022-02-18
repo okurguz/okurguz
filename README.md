@@ -1,6 +1,6 @@
 ***Hi guys! ✌ My name is Olga!***
 
-✔completed the QA-course of Vadim Ksendzov.
+✔completed the QA-course of [Vadim Ksendzov](https://ksendzov.com/).
 
 _Here you can find the results of my studies and work 🧠_
 
